@@ -1,1 +1,0 @@
-# nakatyandesu.github.io
